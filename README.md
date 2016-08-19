@@ -1,2 +1,2 @@
 # Adventure
-A  journey to the bigger new world. 
+I know the answer about life, universe and everything.
